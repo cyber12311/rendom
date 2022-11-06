@@ -1,0 +1,3 @@
+# rendom
+
+ektu kori tumai🥲🥸
